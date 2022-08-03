@@ -1,2 +1,2 @@
-# ZLOy
+# ZLOy.io
 ne ebu
